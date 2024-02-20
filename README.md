@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Moscow culture
 - 💞️ I’m looking to collaborate on xex
 - 📫 OOga booga not not
-- today is...
+- today is... tuesday
