@@ -4,3 +4,4 @@
 - 💞️ I’m looking to collaborate on xex
 - 📫 OOga booga not not
 - today is... tuesday data
+- main day
