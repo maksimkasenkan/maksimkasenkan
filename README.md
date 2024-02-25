@@ -6,3 +6,4 @@
 - today is... tuesday data
 - main day
 - only tsss tea
+- only nescafe coffee
