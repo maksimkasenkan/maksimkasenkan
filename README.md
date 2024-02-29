@@ -7,4 +7,4 @@
 - main day
 - only tsss tea
 - only nescafe coffee
-- give me for my car
+- give me for my car lamba
