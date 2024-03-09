@@ -2,7 +2,7 @@
 - 👀 I’m interested in lolita news
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on xex
-- 📫 OOga booga not not
+- 📫 OOga booga not not bear
 - today is... tuesday data
 - main day
 - only tsss tea
