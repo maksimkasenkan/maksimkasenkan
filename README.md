@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @maksimkasenkan, and
-- 👀 I’m interested in lolita news
+- 👀 I’m interested in alizee news
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on xex
 - 📫 OOga booga not not bear
