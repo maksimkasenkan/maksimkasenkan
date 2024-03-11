@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on xex
 - 📫 OOga booga not not bear
 - today is... tuesday data
-- main day
+- main day clear
 - only tsss tea
 - only nescafe coffee
 - give me for my car lamba galardo
