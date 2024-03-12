@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on xex
 - 📫 OOga booga not not bear
-- today is... tuesday data
+- today is... tuesday data only stopped
 - main day clear
 - only tsss tea
 - only nescafe coffee
