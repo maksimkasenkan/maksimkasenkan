@@ -10,4 +10,4 @@
 - give me for my car lamba galardo
 - elephant jambo
 - ios dapps
-- geely cool ray
+- geely cool ray moto
