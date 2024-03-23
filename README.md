@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @maksimkasenkan, and
+- 👋 Hi, I’m Maksim, and
 - 👀 I’m interested in alizee news
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on xex
