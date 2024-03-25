@@ -5,7 +5,7 @@
 - 📫 OOga booga not not bear globes
 - today is... tuesday data only stopped follow
 - main day clear
-- only tsss tea
+- only tsss tea cup
 - only nescafe coffee
 - give me for my car lamba galardo
 - elephant jambo
