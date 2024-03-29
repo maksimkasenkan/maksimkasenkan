@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Maksim, and
-- 👀 I’m interested in alizee news
+- 👀 I’m interested in alizee news plotter
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on Xerx
 - 📫 OOga booga not not bear globes
