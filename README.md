@@ -9,5 +9,5 @@
 - only nescafe coffee
 - give me for my car lamba galardo
 - elephant jambo
-- ios dapps any way stop
+- ios dapps any way stop line
 - geely cool ray motocicle harley money
