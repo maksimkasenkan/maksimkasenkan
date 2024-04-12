@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Xerx
 - 📫 OOga booga not not bear globes
 - today is... tuesday data only stopped follow
-- main day clear nonce x10
+- main day clear nonce x10 duble
 - only tsss tea cup of cacke stake
 - only nescafe coffee
 - give me for my car lamba galardo
