@@ -8,6 +8,6 @@
 - only tsss tea cup of cacke stake
 - only nescafe coffee map
 - give me for my car lamba galardo
-- elephant jambo
+- elephant jambo cool
 - ios dapps any way stop line
 - geely cool ray motocicle harley money
