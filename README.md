@@ -11,5 +11,5 @@
 - elephant jambo cool engage strike
 - ios dapps any way stop line
 - geely cool ray motocicle harley money
-- liquidation position past
+- liquidation position past pioneer
 - post of mary media poligon zkevm
