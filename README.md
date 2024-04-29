@@ -9,7 +9,7 @@
 - only nescafe coffee map clope
 - give me for my car lamba galardo
 - elephant jambo cool engage strike
-- ios dapps any way stop line
+- ios dapps any way stop line everybody
 - geely cool ray motocicle harley money
 - liquidation position past pioneer
 - post of mary media poligon zkevm
