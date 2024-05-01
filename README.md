@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Maksim, and purty
+- 👋 Hi, I’m Maksim, and purty booblegum
 - 👀 I’m interested in alizee news plotter
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on Xerx
