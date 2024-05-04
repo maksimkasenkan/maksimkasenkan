@@ -13,4 +13,4 @@
 - geely cool ray motocicle harley money
 - liquidation position past pioneer
 - post of mary media poligon zkevm
-- details of aircraft
+- details of aircraft Bona
