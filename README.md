@@ -12,5 +12,5 @@
 - ios dapps any way stop line everybody
 - geely cool ray motocicle harley money
 - liquidation position past pioneer
-- post of mary media poligon zkevm
+- post of mary media poligon zkevm call
 - details of aircraft Bona luna troy
