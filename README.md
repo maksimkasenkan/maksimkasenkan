@@ -14,4 +14,4 @@
 - liquidation position past pioneer
 - post of mary media poligon zkevm call
 - details of aircraft Bona luna troy
-- reliqui old rock micro
+- reliqui old rock micro sd
