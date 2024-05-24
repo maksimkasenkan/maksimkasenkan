@@ -16,4 +16,4 @@
 - details of aircraft Bona luna troy
 - reliqui old rock micro sd edition
 - give away kia yoki beer market small
-- plotter stargate
+- plotter stargate disco
