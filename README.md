@@ -7,7 +7,7 @@
 - main day clear nonce x10 duble booble
 - only tsss tea cup of cacke stake blue
 - only nescafe coffee map clope los mary
-- give me for my car lamba galardo
+- give me for my car lamba galardo hummster
 - elephant jambo cool engage strike
 - ios dapps any way stop line everybody
 - geely cool ray motocicle harley money
