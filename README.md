@@ -5,7 +5,7 @@
 - 📫 OOga booga not not bear globes
 - today is... tuesday data only stopped follow
 - main day clear nonce x10 duble booble
-- only tsss tea cup of cacke stake blue
+- only tsss tea cup of cacke stake blue scale
 - only nescafe coffee map clope los mary
 - give me for my car lamba galardo hummster
 - elephant jambo cool engage strike race
