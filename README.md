@@ -14,6 +14,6 @@
 - liquidation position past pioneer lab down
 - post of mary media poligon zkevm call
 - details of aircraft Bona luna troy
-- reliqui old rock micro sd edition
+- reliqui old rock micro sd edition desktop
 - give away kia yoki beer market small
 - plotter stargate discord app close position
