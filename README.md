@@ -2,7 +2,7 @@
 - 👀 I’m interested in alizee news plotter
 - 🌱 I’m currently learning indian culture
 - 💞️ I’m looking to collaborate on Xerx
-- 📫 OOga booga not not bear globes
+- 📫 OOga booga not not bear plus globes
 - today is... tuesday data only stopped follow
 - main day clear nonce x10 duble booble
 - only tsss tea cup of cacke stake blue scale
