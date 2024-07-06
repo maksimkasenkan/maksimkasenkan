@@ -16,5 +16,5 @@
 - details of aircraft Bona luna troy puff town 
 - reliqui old rock micro sd edition desktop
 - give away kia yoki beer market small doctor
-- plotter stargate discord app close position
+- plotter stargate discord app close position zero
 - harem question meme faucet hub mine insignia
