@@ -6,7 +6,7 @@
 - today is... tuesday data only stopped follow
 - main day clear nonce x10 duble map booble
 - only tsss tea cup of cacke stake blue scale
-- only nescafe coffee map set clope los mary jane
+- only nescafe coffee map set clope los mary jane ellet
 - give me for my car lamba galardo hummster combat
 - elephant jambo cool engage strike  tobot race
 - ios dapps any wood way stop line everybody soccer
